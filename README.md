@@ -1,2 +1,2 @@
-# Journalism124
-Intro to Data Journalism Markdown practice resume
+# Olivia "Liv" Freidenreich
+## I'm a social justice advocate, journalist, and artist. 
